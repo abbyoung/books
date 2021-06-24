@@ -30,6 +30,6 @@ What if sometimes, we get to read novels with women protagonists whose identitie
 - [The Space Between Worlds](https://bookshop.org/books/the-space-between-worlds-9780593135051/9780593135051) by Micaiah Johnson
 
 ### I don't know, I just want to read a good book!
-- [_How The One-Armed Sister Sweeps Her House_](https://bookshop.org/books/nadja-on-nadja/9780998892351) by Cherie Jones
+- [_How The One-Armed Sister Sweeps Her House_](https://bookshop.org/books/how-the-one-armed-sister-sweeps-her-house-9780316536998/9780316536981) by Cherie Jones
 - [_The Dutch House_](https://bookshop.org/books/the-dutch-house/9780062963680) by Ann Patchett
 - [_Yolk_](https://bookshop.org/books/yolk/9781534446007) by Mary H.K. Choi
