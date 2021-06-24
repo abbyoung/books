@@ -8,7 +8,7 @@ What if sometimes, we get to read novels with women protagonists whose identitie
 
 - [_Banshee_](https://bookshop.org/books/banshee-9781948340106/9781948340113) by Rachel DeWoskin
 - [_The Awakening_](https://bookshop.org/books/the-awakening-9780486277868/9780486277868) by Kate Chopin
-- [_Two Series Ladies_](https://bookshop.org/books/two-serious-ladies/9780062283122) by Jane Bowles
+- [_Two Serious Ladies_](https://bookshop.org/books/two-serious-ladies/9780062283122) by Jane Bowles
 - [_Nadja on Nadja_](https://bookshop.org/books/nadja-on-nadja/9780998892351) by Tsipi Keller
 - [_My Year Of Rest And Relaxation_](https://bookshop.org/books/my-year-of-rest-and-relaxation/9780525522133) by Ottessa Moshfegh
 
